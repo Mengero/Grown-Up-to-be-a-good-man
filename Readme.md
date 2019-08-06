@@ -11,3 +11,10 @@
 
 14:50 - 16:20  **Sleep**
 
+17:00 - 18:00  **Have a Walk**
+
+18:50 - 21:10  **CSGO**
+
+21:10 - 21:20  **Shower**
+
+21:20 - **Have fun with Shirly**
