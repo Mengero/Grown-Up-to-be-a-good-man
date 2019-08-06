@@ -7,5 +7,7 @@
 
 11:20 - 11:50  **Chekcing the Intensive Listening Results**
 
-12:40 -        **CSGO**
+12:40 - 14:40  **CSGO**
+
+14:50 - 16:20  **Sleep**
 
