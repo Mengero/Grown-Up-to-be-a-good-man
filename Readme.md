@@ -17,4 +17,4 @@
 
 21:10 - 21:20  **Shower**
 
-21:20 - **Have fun with Shirly**
+21:20 - 23:00 **Have fun with Shirly**
