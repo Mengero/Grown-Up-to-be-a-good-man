@@ -2,7 +2,7 @@
 
 ## xiaotiantian LOGIN... ##
 
-### 2019.8.16 ###
+### 2019.8.6 ###
 10:00 - 11:00  **Finish Intensive Listening 'Navigating the rapids'**
 
 11:20 - 11:50  **Chekcing the Intensive Listening Results**
@@ -17,4 +17,10 @@
 
 21:10 - 21:20  **Shower**
 
-21:20 - 23:00 **Have fun with Shirly**
+21:20 - 12:30  **Have fun with Shirly**
+
+12:30 - 2:00   **Playing Phones**
+
+### 2019.8.7 （七夕） ###
+
+9:10 - **
