@@ -32,3 +32,5 @@
 17:40 - 18:00  **SRTP**
 
 18:30 - 19:30  **Listening Practice**
+
+19:30 - 20:50  **SRTP & Watching Videos（心态大崩）**
