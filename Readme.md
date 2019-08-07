@@ -23,4 +23,10 @@
 
 ### 2019.8.7 （七夕） ###
 
-9:10 - **
+9:10 - 10:40  **Recording Audio for Qixi Festival**
+
+10:40 - 11:30  **Dealing with SRTP**
+
+13:00 - 17:40  **Hang out with Junting Chen**
+
+17:40 - 18:00  **SRTP**
