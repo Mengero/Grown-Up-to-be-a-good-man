@@ -30,3 +30,5 @@
 13:00 - 17:40  **Hang out with Junting Chen**
 
 17:40 - 18:00  **SRTP**
+
+18:30 - 19:30  **Listening Practice**
