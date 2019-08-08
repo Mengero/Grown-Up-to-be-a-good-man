@@ -1,5 +1,7 @@
 # 地球online #
 
+# Freedom from Self-Control #
+
 ## xiaotiantian LOGIN... ##
 
 ## Tasks to do... ##
@@ -65,3 +67,4 @@ Recording Videos  | time-costing, helpful in the future
 
 22:30 - 23:30  **Chatting with Shirly(Happy)**
 
+***Comment: Exercising makes me happy, PC games make me feel regretful & Tiring***
