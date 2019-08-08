@@ -2,6 +2,18 @@
 
 ## xiaotiantian LOGIN... ##
 
+## Activities ##
+
+Activities  | Characteristic
+------------- | -------------
+Playing Badminton(Exercise)  | Healthy, making me feel happy, Helpful in the future
+Playing PC games  | making me feel happy but tiring, No help in the future, wasting-time
+Playing the Piano  | challenging, helpful in the future
+Practicing English(Listening, Speaking, Writing, and Reading)  | Tough, VVVVery Helpful in the Future!!!
+Video Editing  | helpful in the future, time-costing
+Taking Photos  | helpful in the future
+Recording Videos  | time-costing, helpful in the future
+
 ### 2019.8.6 ###
 10:00 - 11:00  **Finish Intensive Listening 'Navigating the rapids'**
 
