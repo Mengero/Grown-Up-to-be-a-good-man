@@ -57,8 +57,11 @@ Recording Videos  | time-costing, helpful in the future
 
 11:30 - 11:50  **Cooking Lunch**
 
-12:30 - 13:30  **SRTP**
+12:30 - 13:30  **SRTP(Tiring, but it is okay)**
 
-13:30 - 16:30  **CSGO**
+13:30 - 16:30  **CSGO(Exciting, Tiring, Regretful)**
 
+18:30 - 21:30  **Playing Badminton(Happy)**
+
+22:30 - 23:30  **Chatting with Shirly(Happy)**
 
