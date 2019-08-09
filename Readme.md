@@ -71,6 +71,10 @@ Recording Videos  | time-costing, helpful in the future
 
 ### 2019.8.9 ###
 
-9：30 - 10：10  **Editing Tweet**
+9:30 - 10:10  **Editing Tweet**
+
+13:00 - 17:00  **Driving**
+
+18:00 - 21:00  **English Listening**
 
 
