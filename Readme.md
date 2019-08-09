@@ -68,3 +68,9 @@ Recording Videos  | time-costing, helpful in the future
 22:30 - 23:30  **Chatting with Shirly(Happy)**
 
 ***Comment: Exercising makes me happy, PC games make me feel regretful & Tiring***
+
+### 2019.8.9 ###
+
+9：30 - 10：10  **Editing Tweet**
+
+
