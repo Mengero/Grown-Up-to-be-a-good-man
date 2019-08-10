@@ -86,3 +86,9 @@ Recording Videos  | time-costing, helpful in the future
 ### 2019.8.10 ###
 
 9:50 - 10:30  **SRTP**
+
+13:00 - 15:30  **Have a nap**
+
+15:30 - 17:30  **CSGO**
+
+18:30 - 
