@@ -77,4 +77,12 @@ Recording Videos  | time-costing, helpful in the future
 
 18:00 - 21:00  **English Listening**
 
+21:00 - 22:00  **CSGO**
 
+22:00 - 23:40  **Chatting with Shirly**
+
+***Comment: Life is getting better, but I need to sleep earlier***
+
+### 2019.8.10 ###
+
+9:50 - 10:30  **SRTP**
