@@ -92,3 +92,5 @@ Recording Videos  | time-costing, helpful in the future
 15:30 - 17:30  **CSGO**
 
 18:30 - 
+
+***Comment: No CSGO anymore***
