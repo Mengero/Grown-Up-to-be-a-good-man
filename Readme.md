@@ -94,3 +94,21 @@ Recording Videos  | time-costing, helpful in the future
 18:30 - 
 
 ***Comment: No CSGO anymore***
+
+
+
+## RECONNECTED>>>>>> ##
+
+### 2019.8.23 ###
+
+8:30 - 11:30  **CSGO**
+
+12:00 - 13:00  **Lunch**
+
+13:00 - 14:00  **Piano**
+
+14:00 - 16:00  **English Listening**
+
+16:00 - 16:30  **Piano**
+
+16:30 - 17:30  **Check the Listening Result**
