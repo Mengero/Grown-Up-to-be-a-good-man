@@ -112,3 +112,9 @@ Recording Videos  | time-costing, helpful in the future
 16:00 - 16:30  **Piano**
 
 16:30 - 17:30  **Check the Listening Result**
+
+### 2019.9.9 ###
+
+Today, everything is good that I have a good start. However, I do not fully use the evening time.
+
+Hope tomorrow will be better. Go Go Go.
