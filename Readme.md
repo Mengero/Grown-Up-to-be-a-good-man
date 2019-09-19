@@ -118,3 +118,29 @@ Recording Videos  | time-costing, helpful in the future
 Today, everything is good that I have a good start. However, I do not fully use the evening time.
 
 Hope tomorrow will be better. Go Go Go.
+
+### 2019.9.19 ###
+
+Time flies.
+
+I think I only didn't keep writing for several days, but 10 days already past.
+
+Time left for me remains only a little.
+
+I still don't know where to go.
+
+But I can do a lot of things now.
+
+"Don't be too worry", I said to myself.
+
+But I think my grade is not good enough. And I sleep late agian.
+
+Tomorrow, a lot of stuff to do.
+
+Hurry on.
+
+申请的简历。托福继续报考。GRE要报考。科研要写paper。尝试机器人领域。保持成绩。课程内的项目。
+
+要做的事情...太多了。
+
+加油。
